@@ -1,1 +1,0 @@
-# miss-o-refletindo-ihnteligencia-artificial-
